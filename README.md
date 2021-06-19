@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ventix13
+- 👀 I’m interested in Games, Drawings, Art...
+- 🌱 I’m currently learning Drawing
